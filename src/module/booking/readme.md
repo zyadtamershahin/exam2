@@ -1,1 +1,0 @@
-# ASEF YA HANDASA
